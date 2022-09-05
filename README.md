@@ -1,2 +1,0 @@
-# lixiang.github.io
-lixiang
